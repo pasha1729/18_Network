@@ -1,1 +1,1 @@
-.
+![asd](file:///C:/Users/Administrator/Desktop/TYTT.png)
