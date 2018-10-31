@@ -1,1 +1,1 @@
-![](C:\Users\Administrator\Desktop\TYTT.png)
+![TYTT.png](C:\Users\Administrator\Desktop)
