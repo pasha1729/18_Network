@@ -1,1 +1,1 @@
-![TYTT.png](C:\Users\Administrator\Desktop)
+.
