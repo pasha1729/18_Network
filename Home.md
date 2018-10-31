@@ -1,1 +1,1 @@
-![asd](file:///C:/Users/Administrator/Desktop/TYTT.png)
+![as](https://cafeptthumb-phinf.pstatic.net/MjAxODEwMzFfMjA4/MDAxNTQwOTgzNjY3NTI0._narQVVsVj7mwtvQ-ui4CHPvgU3FgeQZXyWrfCgCbtcg.ln3-ChRis6iKudgIDhSz_VZTgRsEWv0VPa0FwTAXBw0g.PNG.pasha1729/TYTT.png)
